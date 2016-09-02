@@ -165,7 +165,30 @@ Signatures, Inscriptions, and Markings
 
 
 
+## Jason Pollock: Pasiphaë
+[Official Introduction](http://www.metmuseum.org/art/collection/search/482518?sortBy=Relevance&amp;ft=pollock&amp;offset=0&amp;rpp=20&amp;pos=2)
 
+![](http://images.metmuseum.org/CRDImages/ma/web-large/DT8806.jpg)
+
+> Finished just after Pollock's first exhibition in 1943 at Peggy Guggenheim's New York gallery, Art of This Century, Pasiphaë is the largest of the painter's mythologically themed pictures of the mid-1940s. Originally named Moby Dick, the picture was retitled before it was exhibited in 1944 when James Johnson Sweeney, a curator at the Museum of Modern Art, related the story of the Cretan princess Pasiphaë who gave birth to the half-man, half-bull Minotaur. The Minotaur had been a favorite motif of Picasso and of the Surrealists (Minotaure had been the name of their literary magazine from 1933 to 1939, for which Picasso had designed the first cover).
+> 
+> Here Pollock incorporates two sentinel-like standing figures at the left and right and a prostrate figure at center. Pollock weaves these figures into a complex field of arcane symbols and free-form abstraction, his own novel interpretation of the Surrealist practice of automatism, wherein the artist's unconscious is used to organize composition.
+
+### On view at The Met Fifth Avenue in Gallery 913
+
+
+
+
+## Jason Pollock: Autumn Rhythm (Number 30)
+[Official Introduction](http://www.metmuseum.org/art/collection/search/488978?sortBy=Relevance&amp;ft=pollock&amp;offset=0&amp;rpp=20&amp;pos=3)
+
+![](http://images.metmuseum.org/CRDImages/ma/web-large/DP259920.jpg)
+
+> Biography: (too long...)
+> 
+> In Autumn Rhythm, as in many of his paintings, Pollock first created a complex linear skeleton using black paint. For this initial layer the paint was diluted, so that it soaked into the length of unprimed canvas, thereby inextricably joining image and support. Over this black framework Pollock wove an intricate web of white, brown, and turquoise lines, which produce the contrary visual rhythms and sensations: light and dark, thick and thin, heavy and buoyant, straight and curved, horizontal and vertical. Textural passages that contribute to the painting's complexity — such as the pooled swirls where two colors meet and the wrinkled skins formed by the build-up of paint — are barely visible in the initial confusion of overlapping lines. Although Pollock's imagery is nonrepresentational, Autumn Rhythm is evocative of nature, not only in its title but also in its coloring, horizontal orientation, and sense of ground and space.
+
+### On view at The Met Fifth Avenue in Gallery 921
 
 
 
